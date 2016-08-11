@@ -1,2 +1,0 @@
-# bismillah
-bismillah wal hamdulillah
